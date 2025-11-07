@@ -1,2 +1,2 @@
 # On-tap-thi-HSG-
-Chang co gi dau, ma nhin thi cung dc
+Chẳng có gì đâu, mà muốn xem thì ok
